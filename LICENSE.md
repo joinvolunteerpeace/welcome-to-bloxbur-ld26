@@ -1,4 +1,4 @@
-
+hidden Scripts for welcome to bloxburg is the best welcome to bloxburg Script, featuring auto-sell and god mode. Safe and powerful for all your needs.
 
 
 
